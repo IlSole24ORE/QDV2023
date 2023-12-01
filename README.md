@@ -3,7 +3,7 @@
 ## Cos'è ##
 La trentaquattresima edizione della tradizionale classifica annuale con la quale Il Sole 24 ORE premia le province italiane che hanno ottenuto le migliori performance in una serie di indicatori scelti come paradigmatici per valutare il benessere personale e familiare.
 
-## Edizione 2022 ##
+## Edizione 2023 ##
 L'edizione 2023 è stata pubblicata su Il Sole 24 ORE di *Lunedì 4 Dicembre 2023* e sul sito [www.ilsole24ore.com](https://www.ilsole24ore.com)
 
 ## Il Sole 24 ORE ##
